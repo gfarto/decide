@@ -20,6 +20,5 @@ If any changes are made to this privacy policy in the future, they will be updat
 
 ## Contact Us
 
-If you have any questions about this policy, feel free to contact us at: **[your email]**
+If you have any questions about this policy, feel free to contact us at: **giovannyfarto@gmail.com**
 
-(Example: giovannyfarto@gmail.com)
