@@ -1,6 +1,6 @@
 # Privacy Policy for Decide
 
-**Effective Date:** [Replace with your publication date]
+**Effective Date:** 27-04-2025
 
 Thank you for using **Decide**.  
 This app respects your privacy and does not collect, store, or share any personal information from users.
